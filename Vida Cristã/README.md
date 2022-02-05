@@ -17,23 +17,23 @@
 
   - **Brevidade da vida**
 
-  A vida passa de uma maneira tão breve que não sabemos o dia de amanhã (Tiago 4:14, Salmo 90:9,12)
+    A vida passa de uma maneira tão breve que não sabemos o dia de amanhã (Tiago 4:14, Salmo 90:9,12)
 
-  >*Vocês nem sabem o que lhes acontecerá amanhã! Que é a sua vida? Vocês são como a neblina que aparece por um pouco de tempo e depois se dissipa.*
+    >*Vocês nem sabem o que lhes acontecerá amanhã! Que é a sua vida? Vocês são como a neblina que aparece por um pouco de tempo e depois se dissipa.*
 
-  >*Todos os nossos dias passam debaixo do teu furor; vão-se como um murmúrio.*
+    >*Todos os nossos dias passam debaixo do teu furor; vão-se como um murmúrio.*
 
-  >*Ensina-nos a contar os nossos dias para que o nosso coração alcance sabedoria.*
+    >*Ensina-nos a contar os nossos dias para que o nosso coração alcance sabedoria.*
 
   - **Plenitude da vida**
 
-  O desejo de Deus é que nós sejamos felizes, e tenhamos uma vida ***plena***, por isso enviou seu filho ao mundo (João 10:10)
+    O desejo de Deus é que nós sejamos felizes, e tenhamos uma vida ***plena***, por isso enviou seu filho ao mundo (João 10:10)
 
-  >*O ladrão vem apenas para furtar, matar e destruir; eu vim para que tenham vida, e a tenham plenamente.*
+    >*O ladrão vem apenas para furtar, matar e destruir; eu vim para que tenham vida, e a tenham plenamente.*
 
   - **Estabelecendo ***CORRETAMENTE*** as prioridades**
 
-  Administrar nosso tempo em estudos, trabalho, igreja, família e amigos é fundamental para viver plenamente, mas quais devem ser as prioridades? onde devemos empregar o maior tempo?
+    Administrar nosso tempo em estudos, trabalho, igreja, família e amigos é fundamental para viver plenamente, mas quais devem ser as prioridades? onde devemos empregar o maior tempo?
 
   #### Estudos
   #### Trabalho
