@@ -6,15 +6,15 @@
 
    1. **Tempo:** Administrando o tempo com sabedoria
 
-   Devemos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
+    Devemos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
 
    2. **Finanças:** Gerindo as finanças adequadamente
 
-   A proposta é descobrir quanto de nosso dinheiro deve ser empregado em cada área controlando nossos gastos, mantendo nossos compromissos (pagando nossas dívidas) sem deixar de contribuir com a igreja local e sem deixar de ajudar os necessitados.
+    A proposta é descobrir quanto de nosso dinheiro deve ser empregado em cada área controlando nossos gastos, mantendo nossos compromissos (pagando nossas dívidas) sem deixar de contribuir com a igreja local e sem deixar de ajudar os necessitados.
 
    3. **Corpo:** Dominando as vontades da carne
 
-   Iremos fazer uma auto-análise e identificar os nossos vícios, entender a constante luta do espírito contra a carne e como o sexo pode destruir vidas.
+    Iremos fazer uma auto-análise e identificar os nossos vícios, entender a constante luta do espírito contra a carne e como o sexo pode destruir vidas.
 
 ## Tempo: Administrando o tempo com sabedoria
   #### Introdução
