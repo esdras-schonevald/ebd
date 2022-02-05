@@ -12,6 +12,8 @@
   >*Ensina-nos a contar os nossos dias para que o nosso coração alcance sabedoria.*
 
   #### Plenitude da vida
+  - O desejo de Deus é que nós sejamos felizes, e tenhamos uma vida ***plena***, por isso enviou seu filho ao mundo (João 10:10)
+  >*O ladrão vem apenas para furtar, matar e destruir; eu vim para que tenham vida, e a tenham plenamente.*
 
 
 ## Tempo: Administrando o tempo
