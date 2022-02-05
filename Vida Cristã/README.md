@@ -1,7 +1,7 @@
 # Vida Cristã (Fevereiro 2022)
 
 ## Introdução
-  #### Apresentando o plano de estudos**
+  #### Apresentando o plano de estudos
   Neste mês trataremos sobre ***VIDA CRISTÃ*** e dividimos em 3 estudos:
 
    * **1. Tempo: Administrando o tempo com sabedoria** - Devemos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
