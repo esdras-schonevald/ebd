@@ -1,8 +1,18 @@
  # Vida Cristã (Fevereiro 2022)
 
  ## Introdução
-  - Brevidade da vida
-  - Plenitude da vida
+  - Para melhor entender o que trataremos a respeito de vida cristã devemos primeiro entender dois fatores sobre a vida em geral, sua brevidade e sua plenitude
+  #### Brevidade da vida
+  - A vida passa de uma maneira tão breve que não sabemos o dia de amanhã (Tiago 4:14, Salmo 90:9,12)
+
+  >*Vocês nem sabem o que lhes acontecerá amanhã! Que é a sua vida? Vocês são como a neblina que aparece por um pouco de tempo e depois se dissipa.*
+
+  >*Todos os nossos dias passam debaixo do teu furor; vão-se como um murmúrio.*
+
+  >*Ensina-nos a contar os nossos dias para que o nosso coração alcance sabedoria.*
+
+  #### Plenitude da vida
+
 
 ## Tempo: Administrando o tempo
   #### Introdução
