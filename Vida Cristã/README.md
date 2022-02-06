@@ -7,7 +7,7 @@ Neste mês trataremos sobre ***VIDA CRISTÃ*** e dividimos em 3 estudos:
 
   - **1. TEMPO:** Administrando com sabedoria
 
-    Devemos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
+    Vamos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
 
     [AULA 01 DIA 06/02/2022](./AULA-01-TEMPO.md)
 
