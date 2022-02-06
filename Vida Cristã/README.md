@@ -86,7 +86,7 @@ Neste mês trataremos sobre ***VIDA CRISTÃ*** e dividimos em 3 estudos:
     > *Não deixemos de reunir-nos como igreja, segundo o costume de alguns, mas procuremos encorajar-nos uns aos outros, ainda mais quando vocês veem que se aproxima o Dia*
 
  #### Família
-   - A família foi a primeira instituição sagrada criada por Deus, prioridade máxima do seu tempo, e o primeiro local onde o seu testemunho deve surtir efeito (Marcos 10:6-9, Efésios 5:33, Provérbios 22:6, 1Timóteo 5:8)
+  - A família foi a primeira instituição sagrada criada por Deus, prioridade máxima do seu tempo, e o primeiro local onde o seu testemunho deve surtir efeito (Marcos 10:6-9, Efésios 5:33, Provérbios 22:6, 1Timóteo 5:8)
    
     > *Mas no princípio da criação Deus 'os fez homem e mulher'. 'Por esta razão, o homem deixará pai e mãe e se unirá à sua mulher, e os dois se tornarão uma só carne'. Assim, eles já não são dois, mas sim uma só carne. Portanto, o que Deus uniu, ninguém o separe*
 
