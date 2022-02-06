@@ -12,7 +12,7 @@ Neste mês trataremos sobre ***VIDA CRISTÃ*** e dividimos em 3 estudos:
 
     A proposta é descobrir quanto de nosso dinheiro deve ser empregado em cada área controlando nossos gastos, mantendo nossos compromissos (pagando nossas dívidas) sem deixar de contribuir com a igreja local e sem deixar de ajudar os necessitados.
 
-  3. **Corpo:** Dominando as vontades da carne
+  - **3. Corpo:** Dominando as vontades da carne
 
     Iremos fazer uma auto-análise e identificar os nossos vícios, entender a constante luta do espírito contra a carne e como o sexo pode destruir vidas.
 
