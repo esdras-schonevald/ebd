@@ -4,14 +4,13 @@
 #### Apresentando o plano de estudos
 Neste mês trataremos sobre ***VIDA CRISTÃ*** e dividimos em 3 estudos:
 
- 1. **Tempo:** Administrando o tempo com sabedoria
+  - **1. Tempo:** Administrando o tempo com sabedoria
   
-  &nbsp;
-  Devemos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
+    Devemos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
 
-  2. **Finanças:** Gerindo as finanças adequadamente
+  - **2. Finanças:** Gerindo as finanças adequadamente
 
-   A proposta é descobrir quanto de nosso dinheiro deve ser empregado em cada área controlando nossos gastos, mantendo nossos compromissos (pagando nossas dívidas) sem deixar de contribuir com a igreja local e sem deixar de ajudar os necessitados.
+    A proposta é descobrir quanto de nosso dinheiro deve ser empregado em cada área controlando nossos gastos, mantendo nossos compromissos (pagando nossas dívidas) sem deixar de contribuir com a igreja local e sem deixar de ajudar os necessitados.
 
   3. **Corpo:** Dominando as vontades da carne
 
