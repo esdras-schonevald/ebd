@@ -5,8 +5,8 @@
 Neste mês trataremos sobre ***VIDA CRISTÃ*** e dividimos em 3 estudos:
 
   1. **Tempo:** Administrando o tempo com sabedoria
-  
-    - Devemos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
+  ---|
+    Devemos discutir a melhor forma de administrar o nosso tempo entre estudos, trabalho, igreja, família e amigos.
 
   2. **Finanças:** Gerindo as finanças adequadamente
 
