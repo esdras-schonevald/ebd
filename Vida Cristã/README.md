@@ -14,7 +14,7 @@ Neste mês trataremos sobre ***VIDA CRISTÃ*** e dividimos em 3 estudos:
 
   3. **Corpo:** Dominando as vontades da carne
 
-   Iremos fazer uma auto-análise e identificar os nossos vícios, entender a constante luta do espírito contra a carne e como o sexo pode destruir vidas.
+    Iremos fazer uma auto-análise e identificar os nossos vícios, entender a constante luta do espírito contra a carne e como o sexo pode destruir vidas.
 
 ## Tempo: Administrando o tempo com sabedoria
  #### Introdução
