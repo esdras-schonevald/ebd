@@ -15,7 +15,7 @@ Neste mês trataremos sobre ***VIDA CRISTÃ*** e dividimos em 3 estudos:
 
     A proposta é descobrir quanto de nosso dinheiro deve ser empregado em cada área controlando nossos gastos, mantendo nossos compromissos (pagando nossas dívidas) sem deixar de contribuir com a igreja local e sem deixar de ajudar os necessitados.
 
-    [AULA 02 DIA 13/02/2022](./EM-BREVE.md)
+    [AULA 02 DIA 13/02/2022](./AULA-02-DINHEIRO.md)
 
   - **3. CORPO:** Dominando as vontades da carne
 
