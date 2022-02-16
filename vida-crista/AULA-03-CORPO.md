@@ -97,3 +97,4 @@ Por isso vamos entender os vícios, a luta da carne contra o espírito, e as imo
     De maneira mais prática podemos dizer "EU" sou o meu maior inimigo. Isto é, minha carne é inimiga do meu espírito e meu espírito da minha carne, os dois vivem em constante luta e entender isso pode fazer toda a diferença em nossa vida. Assim como Cristo venceu o Diabo e todo o poder das trevas, nosso espírito deve vencer nossa carne, pois Cristo já venceu e nele podemos também vencer, mas nossa luta ainda não acabou e não terminará enquanto formos ***CARNE***.
 
 #### Sexo
+  ***Estudaremos na próxima aula, dia 27 de Fev de 2022***
