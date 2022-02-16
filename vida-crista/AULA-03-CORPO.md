@@ -1,7 +1,7 @@
 # VIDA CRISTÃ
 
 ## CORPO: Dominando as vontades da carne
-Neste estudo sobre vida cristã observamos que o cristão deve administrar de uma maneira sábia o seu ***TEMPO*** e o seu ***Dinheiro***, mas algo tão importante quanto os anteriores é administrar o seu ***CORPO*** de maneira correta.
+Neste estudo sobre vida cristã observamos que o cristão deve administrar de uma maneira sábia o seu ***TEMPO*** e o seu ***DINHEIRO***, mas algo tão importante quanto os anteriores é administrar o seu ***CORPO*** de maneira correta.
 
   - **Devemos ter cuidado e respeito pelo nosso corpo**
     Nosso corpo é templo do espírito santo, e devemos cuidar e respeitá-lo.
