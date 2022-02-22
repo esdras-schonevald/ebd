@@ -12,7 +12,7 @@ Neste estudo sobre vida cristã observamos que o cristão deve administrar de um
 
 #### SEXO
 
-  - **Deus nos criou para constituirmos matrimônio**
+- **Deus nos criou para constituirmos matrimônio**
 
   O propósito de Deus para o homem é que ele constitua família, tenha uma vida plena, tenha filhos e filhas e possa desfrutar do melhor desta vida.
 
@@ -28,7 +28,7 @@ Neste estudo sobre vida cristã observamos que o cristão deve administrar de um
 
     > *Ele respondeu: "Vocês não leram que, no princípio, o Criador 'os fez homem e mulher' e disse: 'Por essa razão, o homem deixará pai e mãe e se unirá à sua mulher, e os dois se tornarão uma só carne'? Assim, eles já não são dois, mas sim uma só carne. Portanto, o que Deus uniu, ninguém separe".*
 
-  - **Escolha de um(a) companheiro(a)**
+- **Escolha de um(a) companheiro(a)**
 
   Devemos ser extremamente seletivos na escolha de um(a) companheiro(a), pois devemos agradar ao senhor com a nossa escolha.
 
@@ -46,7 +46,7 @@ Neste estudo sobre vida cristã observamos que o cristão deve administrar de um
 
     > *"Não adulterarás.*
 
-  - **Um casamento saudável**
+- **Um casamento saudável**
 
   Precisamos estar disponíveis um ao outro em nosso casamento, para que o desejo não consuma nosso companheiro e o faça cair. O nosso corpo também não é mais nosso mas de nossos conjuges, e deve servir para que agrademos nossos conjuges.
 
@@ -64,46 +64,46 @@ Neste estudo sobre vida cristã observamos que o cristão deve administrar de um
 
     > *Seja bendita a sua fonte! Alegre-se com a esposa da sua juventude. Gazela amorosa, corça graciosa; que os seios de sua esposa sempre o fartem de prazer, e sempre o embriaguem os carinhos dela.*
 
-  - **Desejos impuros**
+- **Desejos impuros**
 
   Mas devemos lembram que até mesmo a relação entre o homem e mulher no casamento deve ser conservada pura.
 
-    *Hebreus 13:4*
+  *Hebreus 13:4*
 
-    > *O casamento deve ser honrado por todos; o leito conjugal, conservado puro; pois Deus julgará os imorais e os adúlteros.*
+  > *O casamento deve ser honrado por todos; o leito conjugal, conservado puro; pois Deus julgará os imorais e os adúlteros.*
 
   Precisamos saber controlar os nossos desejos, não nos deixando dominar pela paixão e vontades imorais, precisamos nos portar sempre de maneira honrosa, seja no agir, falar, vestir ou até pensar.
 
-    *1 Tessalonicenses 4:3-5*
+  *1 Tessalonicenses 4:3-5*
 
-    > *A vontade de Deus é que vocês sejam santificados: abstenham-se da imoralidade sexual. Cada um saiba controlar o seu próprio corpo de maneira santa e honrosa, não dominado pela paixão de desejos desenfreados, como os pagãos que desconhecem a Deus.*
+  > *A vontade de Deus é que vocês sejam santificados: abstenham-se da imoralidade sexual. Cada um saiba controlar o seu próprio corpo de maneira santa e honrosa, não dominado pela paixão de desejos desenfreados, como os pagãos que desconhecem a Deus.*
 
-    *1 Coríntios 6:18-20*
+  *1 Coríntios 6:18-20*
 
-    > *Fujam da imoralidade sexual. Todos os outros pecados que alguém comete, fora do corpo os comete; mas quem peca sexualmente, peca contra o seu próprio corpo. Acaso não sabem que o corpo de vocês é santuário do Espírito Santo que habita em vocês, que lhes foi dado por Deus, e que vocês não são de vocês mesmos? Vocês foram comprados por alto preço. Portanto, glorifiquem a Deus com o seu próprio corpo.*
+  > *Fujam da imoralidade sexual. Todos os outros pecados que alguém comete, fora do corpo os comete; mas quem peca sexualmente, peca contra o seu próprio corpo. Acaso não sabem que o corpo de vocês é santuário do Espírito Santo que habita em vocês, que lhes foi dado por Deus, e que vocês não são de vocês mesmos? Vocês foram comprados por alto preço. Portanto, glorifiquem a Deus com o seu próprio corpo.*
 
-    *Mateus 5:28*
+  *Mateus 5:28*
 
-    > *Mas eu digo: Qualquer que olhar para uma mulher e desejá-la, já cometeu adultério com ela no seu coração.*
+  > *Mas eu digo: Qualquer que olhar para uma mulher e desejá-la, já cometeu adultério com ela no seu coração.*
 
-    *Romanos 13:13*
+  *Romanos 13:13*
 
-    > *Comportemo-nos com decência, como quem age à luz do dia, não em orgias e bebedeiras, não em imoralidade sexual e depravação, não em desavença e inveja.*
+  > *Comportemo-nos com decência, como quem age à luz do dia, não em orgias e bebedeiras, não em imoralidade sexual e depravação, não em desavença e inveja.*
 
-    *Efésios 5:3*
+  *Efésios 5:3*
 
-    > *Entre vocês não deve haver nem sequer menção de imoralidade sexual como também de nenhuma espécie de impureza e de cobiça; pois essas coisas não são próprias para os santos.*
+  > *Entre vocês não deve haver nem sequer menção de imoralidade sexual como também de nenhuma espécie de impureza e de cobiça; pois essas coisas não são próprias para os santos.*
 
-  - **Uniões que Deus NÃO aprova**
+- **Uniões que Deus NÃO aprova**
 
   Na lei dada aos levitas (tribo de Levi, responsáveis por conduzir o ministério de adoração e música) são citadas práticas e uniões que Deus considera abomináveis, que estão totalmente fora do matrimônio que deus reservou para nós. Entre elas incesto, orgias, adultério, homosexualidade, relações em dias de menstruação, ou relações com animais são exemplos de coisas abomináveis para Deus.
 
-    *Levítico 18:6-23*
+  *Levítico 18:6-23*
 
-    > *"Ninguém poderá se aproximar de uma parenta próxima para se envolver sexualmente com ela. Eu sou o Senhor. "Não desonre o seu pai, envolvendo-se sexualmente com a sua mãe. Ela é sua mãe; não se envolva sexualmente com ela. "Não se envolva sexualmente com a mulher do seu pai; isso desonraria seu pai. "Não se envolva sexualmente com a sua irmã, filha do seu pai ou da sua mãe, tenha ela nascido na mesma casa ou em outro lugar. "Não se envolva sexualmente com a filha do seu filho ou com a filha da sua filha; isso desonraria você. "Não se envolva sexualmente com a filha da mulher do seu pai, gerada por seu pai; ela é sua irmã. "Não se envolva sexualmente com a irmã do seu pai; ela é parenta próxima do seu pai. "Não se envolva sexualmente com a irmã da sua mãe; ela é parenta próxima da sua mãe. "Não desonre o irmão do seu pai aproximando-se da sua mulher para com ela se envolver sexualmente; ela é sua tia. "Não se envolva sexualmente com a sua nora. Ela é mulher do seu filho; não se en­volva sexualmente com ela. "Não se envolva sexualmente com a mulher do seu irmão; isso desonraria seu irmão. "Não se envolva sexualmente com uma mulher e sua filha. Não se envolva sexual­mente com a filha do seu filho ou com a filha da sua filha; são parentes próximos. É perversi­dade. "Não tome por mulher a irmã da sua mulher, tornando-a rival, envolvendo-se sexual­mente com ela, estando a sua mulher ainda vi­va. "Não se aproxime de uma mulher para se envolver sexualmente com ela quando ela estiver na impureza da sua menstruação. "Não se deite com a mulher do seu próximo, contaminando-se com ela. "Não entregue os seus filhos para se­rem sacrificados a Moloque. Não profanem o nome do seu Deus. Eu sou o Senhor. "Não se deite com um homem como quem se deita com uma mulher; é repugnante. "Não tenha relações sexuais com um animal, contaminando-se com ele. Mulher ne­nhuma se porá diante de um animal para ajuntar-se com ele; é depravação.*
+  > *"Ninguém poderá se aproximar de uma parenta próxima para se envolver sexualmente com ela. Eu sou o Senhor. "Não desonre o seu pai, envolvendo-se sexualmente com a sua mãe. Ela é sua mãe; não se envolva sexualmente com ela. "Não se envolva sexualmente com a mulher do seu pai; isso desonraria seu pai. "Não se envolva sexualmente com a sua irmã, filha do seu pai ou da sua mãe, tenha ela nascido na mesma casa ou em outro lugar. "Não se envolva sexualmente com a filha do seu filho ou com a filha da sua filha; isso desonraria você. "Não se envolva sexualmente com a filha da mulher do seu pai, gerada por seu pai; ela é sua irmã. "Não se envolva sexualmente com a irmã do seu pai; ela é parenta próxima do seu pai. "Não se envolva sexualmente com a irmã da sua mãe; ela é parenta próxima da sua mãe. "Não desonre o irmão do seu pai aproximando-se da sua mulher para com ela se envolver sexualmente; ela é sua tia. "Não se envolva sexualmente com a sua nora. Ela é mulher do seu filho; não se en­volva sexualmente com ela. "Não se envolva sexualmente com a mulher do seu irmão; isso desonraria seu irmão. "Não se envolva sexualmente com uma mulher e sua filha. Não se envolva sexual­mente com a filha do seu filho ou com a filha da sua filha; são parentes próximos. É perversi­dade. "Não tome por mulher a irmã da sua mulher, tornando-a rival, envolvendo-se sexual­mente com ela, estando a sua mulher ainda vi­va. "Não se aproxime de uma mulher para se envolver sexualmente com ela quando ela estiver na impureza da sua menstruação. "Não se deite com a mulher do seu próximo, contaminando-se com ela. "Não entregue os seus filhos para se­rem sacrificados a Moloque. Não profanem o nome do seu Deus. Eu sou o Senhor. "Não se deite com um homem como quem se deita com uma mulher; é repugnante. "Não tenha relações sexuais com um animal, contaminando-se com ele. Mulher ne­nhuma se porá diante de um animal para ajuntar-se com ele; é depravação.*
 
   A imoralidade é uma consequencia do homem afastar-se de Deus, portanto se nos voltarmos à Deus Ele nos livrará da imoralidade, mas ao afastar-nos somos consumidos por desejos impuros.
 
-    *Romanos 1:22-27*
+  *Romanos 1:22-27*
 
-    > *Dizendo-se sábios, tornaram-se loucos e trocaram a glória do Deus imortal por imagens feitas segundo a semelhança do homem mortal, bem como de pássaros, quadrúpedes e répteis. Por isso Deus os entregou à impureza sexual, segundo os desejos pecaminosos do seu coração, para a degradação do seu corpo entre si. Trocaram a verdade de Deus pela mentira, e adoraram e serviram a coisas e seres criados, em lugar do Criador, que é bendito para sempre. Amém. Por causa disso Deus os entregou a paixões vergonhosas. Até suas mulheres trocaram suas relações sexuais naturais por outras, contrárias à natureza. Da mesma forma, os homens também abandonaram as relações naturais com as mulheres e se inflamaram de paixão uns pelos outros. Começaram a cometer atos indecentes, homens com homens, e receberam em si mesmos o castigo merecido pela sua perversão.*
+  > *Dizendo-se sábios, tornaram-se loucos e trocaram a glória do Deus imortal por imagens feitas segundo a semelhança do homem mortal, bem como de pássaros, quadrúpedes e répteis. Por isso Deus os entregou à impureza sexual, segundo os desejos pecaminosos do seu coração, para a degradação do seu corpo entre si. Trocaram a verdade de Deus pela mentira, e adoraram e serviram a coisas e seres criados, em lugar do Criador, que é bendito para sempre. Amém. Por causa disso Deus os entregou a paixões vergonhosas. Até suas mulheres trocaram suas relações sexuais naturais por outras, contrárias à natureza. Da mesma forma, os homens também abandonaram as relações naturais com as mulheres e se inflamaram de paixão uns pelos outros. Começaram a cometer atos indecentes, homens com homens, e receberam em si mesmos o castigo merecido pela sua perversão.*
