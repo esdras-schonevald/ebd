@@ -3,6 +3,13 @@
 ## CORPO: Dominando as vontades da carne
 Neste estudo sobre vida cristã observamos que o cristão deve administrar de uma maneira sábia o seu ***TEMPO*** e o seu ***DINHEIRO***, mas algo tão importante quanto os anteriores é administrar o seu ***CORPO*** de maneira correta.
 
+***Base Bíblica: 1 Coríntios 6:12-20***
+
+> *Alguém vai dizer: “Eu posso fazer tudo o que quero.” Pode, sim, mas nem tudo é bom para você. Eu poderia dizer: “Posso fazer qualquer coisa.” Mas não vou deixar que nada me escravize. Outro vai dizer: “O alimento existe para o estômago, e o estômago existe para o alimento.” Sim, mas Deus acabará com os dois. O nosso corpo não existe para praticar a imoralidade, mas para servir o Senhor; e o Senhor cuida do nosso corpo. Pelo seu poder Deus ressuscitou o Senhor e também nos ressuscitará a nós. Será que vocês não sabem que o corpo de vocês faz parte do corpo de Cristo? Será que eu vou pegar uma parte do corpo de Cristo e fazer com que ela seja parte do corpo de uma prostituta? É claro que não! Ou será que vocês não sabem que o homem que se une com uma prostituta se torna uma só pessoa com ela? As Escrituras Sagradas afirmam: “Os dois se tornam uma só pessoa.” Porém quem se une com o Senhor se torna, espiritualmente, uma só pessoa com ele. Fujam da imoralidade sexual! Qualquer outro pecado que alguém comete não afeta o corpo, mas a pessoa que comete imoralidade sexual peca contra o seu próprio corpo. Será que vocês não sabem que o corpo de vocês é o templo do Espírito Santo, que vive em vocês e lhes foi dado por Deus? Vocês não pertencem a vocês mesmos, mas a Deus, pois ele os comprou e pagou o preço. Portanto, usem o seu corpo para a glória dele.*
+
+## PARTE I
+---
+
   - **Devemos ter cuidado e respeito pelo nosso corpo**
 
     Nosso corpo é templo do espírito santo, e devemos cuidar e respeitá-lo.
