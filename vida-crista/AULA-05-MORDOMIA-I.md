@@ -43,6 +43,8 @@ Como você tem usado o que Deus entregou na tua vida?
 
     *Romanos 12:6*
 
+    > *Temos diferentes dons, de acordo com a graça que nos foi dada. Se alguém tem o dom de profetizar, use-o na proporção da sua fé.*
+
   - **Devolver a Deus uma parte do que Ele confiou a você, é uma forma reconhecer que tudo pertence à Ele e ajudar em outros ministérios, sabendo que quando necessário Deus proverá também recursos para o seu ministério, e como mordomos de Cristo, manter outros ministérios deve nos alegrar**
 
     *2 Coríntios 9:6-7*
@@ -52,8 +54,6 @@ Como você tem usado o que Deus entregou na tua vida?
 #### 3. Devemos fazer o melhor e ser exemplo
 
   - **Se Deus nos deu algo (que não é nosso, é dEle), seja no campo físico (material) ou espiritual, é para que administremos da melhor maneira possível, como seus ***MORDOMOS***, e se não fazemos o melhor com o que temos em nossas mãos, não somos dignos de ter e logo nos será tirado**
-
-    > *Temos diferentes dons, de acordo com a graça que nos foi dada. Se alguém tem o dom de profetizar, use-o na proporção da sua fé.*
 
     *1 Timóteo 4:14*
 
@@ -77,7 +77,7 @@ Como você tem usado o que Deus entregou na tua vida?
 
     > *Por essa razão, torno a lembrá-lo de que mantenha viva a chama do dom de Deus que está em você mediante a imposição das minhas mãos.*
 
-    > *Romanos 14:11-12*
+    *Romanos 14:11-12*
 
     > *Porque está escrito: " 'Por mim mesmo jurei', diz o Senhor, 'diante de mim todo joelho se dobrará e toda língua confessará que sou Deus' ". Assim, cada um de nós prestará contas de si mesmo a Deus.*
 
