@@ -128,5 +128,5 @@ Jesus veio para servir. Embora sendo o Deus Todo-poderoso, Jesus se tornou servo
 
   - **Temos a ***CAPACIDADE*** de servir (1 Pedro 4:10)**
   - **Temos o ***EXEMPLO*** do Senhor (Filipenses 2:5-7)**
-  - **Temos a ***RESPONSABILIDADE*** de escolher servir por amor (Gálatas 5:13)
-  - **Temos a ***MISSÃO*** de estar prontos para o encontro com Cristo (Lucas 12:35-38)
+  - **Temos a ***RESPONSABILIDADE*** de escolher servir por amor (Gálatas 5:13)**
+  - **Temos a ***MISSÃO*** de estar prontos para o encontro com Cristo (Lucas 12:35-38)**
