@@ -18,7 +18,7 @@ Jesus veio para servir. Embora sendo o Deus Todo-poderoso, Jesus se tornou servo
 
 #### 1. Capacidade: Ele nos capacitou para servir
 
-  - **Deus nos dá dons para servirmos à Ele e ao próximo, use o seu dom à serviço do seu próximo, seja ele ensino, música, cozinha, limpesa, cuidados, consertos**
+  - **Deus nos dá dons para servirmos à Ele e ao próximo, use o seu dom à serviço do seu próximo, seja ele ensino, música, cozinha, limpeza, cuidados, consertos**
 
     *1 Pedro 4:10*
 
