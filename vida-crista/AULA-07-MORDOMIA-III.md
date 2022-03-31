@@ -17,7 +17,7 @@ Todos - através do Filho Jesus - tem acesso ao Pai. Jesus Cristo verteu Seu san
 Portanto, somos todos iguais diante de Deus e devemos tratar uns aos outros em igualdade, sem desmerecer ninguém. Somos todos um em Cristo Jesus!
 Igualdade na Bíblia
 
-#### Em Cristo somos iguais
+#### 1. Em Cristo somos iguais
 
   **Em Cristo não há distinção de etinia, grau social ou gênero. Todos somos ***IGUAIS*** perante o Senhor**
 
@@ -41,7 +41,7 @@ Igualdade na Bíblia
 
   > *De um só fez ele todos os povos, para que povoassem toda a terra, tendo determinado os tempos anteriormente estabelecidos e os lugares exatos em que deveriam habitar.*
 
-#### Deus é justo
+#### 2. Deus é justo
 
   **O Senhor é justo, e não age com parcialidade**
 
@@ -61,7 +61,7 @@ Igualdade na Bíblia
 
   > *Mas a respeito do Filho, diz: "O teu trono, ó Deus, subsiste para todo o sempre; cetro de equidade é o cetro do teu Reino.*
 
-#### Nós devemos ser justos
+#### 3. Nós devemos ser justos
 
   **Nós não devemos agir com parcialidade**
 
@@ -87,7 +87,7 @@ Igualdade na Bíblia
 
   > *Pois Deus não nos deu espírito de covardia, mas de poder, de amor e de equilíbrio.*
 
-#### Propósito de Deus para nós
+#### 4. Propósito de Deus para nós
 
   **Amar ao próximo como a sí mesmo, é como devemos viver, em igualdade perante Cristo e em amor**
 
