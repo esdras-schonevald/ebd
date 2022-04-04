@@ -98,3 +98,6 @@ Igualdade na Bíblia
   *Mateus 7:12*
 
   > *Assim, em tudo, façam aos outros o que vocês querem que eles façam a vocês; pois esta é a Lei e os Profetas.*
+
+
+  essdrardsds
