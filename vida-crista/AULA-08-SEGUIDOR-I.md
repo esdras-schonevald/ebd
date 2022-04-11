@@ -62,3 +62,7 @@ Imitadores de Cristo na Bíblia
   *1 Tessalonicenses 1:6*
 
   > *De fato, vocês se tornaram nossos imitadores e do Senhor, pois, apesar de muito sofrimento, receberam a palavra com alegria que vem do Espírito Santo.*
+
+
+
+alguma coisa
