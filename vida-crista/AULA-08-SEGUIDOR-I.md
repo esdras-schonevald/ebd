@@ -14,7 +14,7 @@ Você está pronto para isto? Pergunte a sí mesmo todos os dias ao acordar "Eu 
 ## PARTE I - IMITADORES DE CRISTO
 ---
 
-![Imitadores de Cristo](https://e7.pngegg.com/pngimages/538/896/png-clipart-a-path-hand-painted-path.png)
+![Imitadores de Cristo](https://miro.medium.com/max/500/1*fGSc4dAT_zje1V-ITaUHHQ.jpeg)
 
 Em 1 Coríntios o apóstolo Paulo disse: "Tornem-se meus imitadores, como eu o sou de Cristo." Mas será possível ser um imitador de Cristo? Sim! Deus nos fez à Sua imagem e semelhança (Gênesis 1:26). Mudamos e podemos imitá-lo poque o Espírito Santo é que nos transforma.
 
