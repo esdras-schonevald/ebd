@@ -19,7 +19,8 @@ Em 1 Coríntios o apóstolo Paulo disse: "Tornem-se meus imitadores, como eu o s
 Se você está em Cristo, o Espírito Santo que habita em você será capaz de moldá-lo e a cada dia lhe tornar semelhante a Ele. Isso refletirá nos seus atos e nos frutos da sua atitude.
 
 Em termos simples, ter a imagem e semelhança de Deus significa que fomos feitos para nos parecermos com Ele. O Espírito Santo é o agente transformador que ao buscá-lo, o tornará imitador do Pai em espírito em verdade.
-Imitadores de Cristo na Bíblia
+
+- *Bíblia ON (adaptado)*
 
 #### 1. Imitando a Deus
 
@@ -62,7 +63,3 @@ Imitadores de Cristo na Bíblia
   *1 Tessalonicenses 1:6*
 
   > *De fato, vocês se tornaram nossos imitadores e do Senhor, pois, apesar de muito sofrimento, receberam a palavra com alegria que vem do Espírito Santo.*
-
-
-
-alguma coisa
