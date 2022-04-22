@@ -14,13 +14,15 @@ Você está pronto para isto? Pergunte a sí mesmo todos os dias ao acordar "Eu 
 ## PARTE I - IMITADORES DE CRISTO
 ---
 
-~~~Bíblia ON (adaptado)
+![Imitadores de Cristo](https://e7.pngegg.com/pngimages/538/896/png-clipart-a-path-hand-painted-path.png)
+
 Em 1 Coríntios o apóstolo Paulo disse: "Tornem-se meus imitadores, como eu o sou de Cristo." Mas será possível ser um imitador de Cristo? Sim! Deus nos fez à Sua imagem e semelhança (Gênesis 1:26). Mudamos e podemos imitá-lo poque o Espírito Santo é que nos transforma.
 
 Se você está em Cristo, o Espírito Santo que habita em você será capaz de moldá-lo e a cada dia lhe tornar semelhante a Ele. Isso refletirá nos seus atos e nos frutos da sua atitude.
 
 Em termos simples, ter a imagem e semelhança de Deus significa que fomos feitos para nos parecermos com Ele. O Espírito Santo é o agente transformador que ao buscá-lo, o tornará imitador do Pai em espírito em verdade.
-~~~
+
+_Bíblia ON (adaptado)_
 
 #### 1. Imitando a Deus
 
