@@ -20,7 +20,7 @@ Uma vida nova em Jesus significa uma vida diferente. Você agora pertence a Deus
 
 _Bíblia ON (adaptado)_
 
-1. **Deus nos escolheu**
+#### 1. Deus nos escolheu
 
   **Deus nos amou sem merecermos, quando ainda estávamos mortos, e nos deu uma nova vida em Cristo Jesus, uma vida de graça**
 
@@ -38,7 +38,7 @@ _Bíblia ON (adaptado)_
 
   > *Aspergirei água pura sobre vocês e ficarão puros; eu os purificarei de todas as suas impurezas e de todos os seus ídolos. Darei a vocês um coração novo e porei um espírito novo em vocês; tirarei de vocês o coração de pedra e, em troca, darei um coração de carne. Porei o meu Espírito em vocês e os levarei a agir segundo os meus decretos e a obedecer fielmente às minhas leis.*
 
-2. **Morremos com Cristo**
+#### 2. Morremos com Cristo
 
   **Morremos com Cristo para o mundo e para o pecado, e não devemos mais nada ao mundo, o velho homem foi sepultado e um novo homem nasceu (livre da escravidão do pecado)**
 
@@ -58,7 +58,7 @@ _Bíblia ON (adaptado)_
 
   > *Da mesma forma, considerem-se mortos para o pecado, mas vivos para Deus em Cristo Jesus.*
 
-3. **Vivemos em Cristo**
+#### 3. Vivemos em Cristo
 
   **Quando escolhemos estar com Cristo deixamos para trás a nossa antiga vida, não temos mais ligação com o velho homem, deixamos "status", velhas manias, costumes, antigos "amores" e tudo o que fazia parte da nossa antiga vida.**
 
